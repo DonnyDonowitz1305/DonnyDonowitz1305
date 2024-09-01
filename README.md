@@ -1,4 +1,4 @@
-### Hi there, I'm Amaro - aka [Donny][website] 👋 
+### Hi there, I'm Oscar - aka [Donny][website] 👋 
 
 ## I'm a Father, Developer, and Gamer!!
 
