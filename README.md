@@ -1,6 +1,6 @@
 ### Hi there, I'm Oscar - aka [Donny][website] 👋 
 
-## I'm a Father, Developer, and Gamer!!
+## I'm Developer, and Gamer!!
 
 - 🎮 I’m creating a gamemode for Garry's Mod 
 - ⚡ Fun fact: I love reading comics (batman especially)
